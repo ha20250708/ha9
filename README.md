@@ -10,4 +10,4 @@
 
 平台精选了各种热门的成人福利电影，涵盖多个类型如制服诱惑、熟女片、AV作品等。每个视频都提供高清画质，并根据用户的网络自动调整播放流畅度，确保您获得最佳观看体验。平台支持多设备播放，无需注册即可观看所有影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ha20250708/ha9 ）</span>
